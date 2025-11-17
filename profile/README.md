@@ -6,7 +6,7 @@
 
 <p align="center">
   <a href="https://arc-raiders-free-cheat.github.io/.github">
-    <img src="https://img.shields.io/badge/Get_ARC_Raiders-1b2838?style=for-the-badge&logo=windows&logoColor=white" alt="Get ARC Raiders">
+    <img src="https://img.shields.io/badge/Get_CHEAT_Raiders-1b2838?style=for-the-badge&logo=windows&logoColor=white" alt="Get ARC Raiders">
   </a>
 </p>
 
