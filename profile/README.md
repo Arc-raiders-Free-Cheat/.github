@@ -10,13 +10,13 @@
   </a>
 </p>
 
-# ONLY NOW FREE !
+## Only Now Free !
 
  Undetected Arc Raiders Cheats: Stay Invisible and Unbanned In the high-stakes PvPvE battles of Arc Raiders, getting caught means starting over. That's why our undetected Arc Raiders cheats are engineered with kernel-level evasion, polymorphic code, and real-time updates to stay ahead of anti-cheat. No hardware bans, no false positives just pure, worry-free domination. Partner that with HWID spoofer and integration of zero-day detection resistance, ensuring your account remains safe while you rack up kills and extractions. Why risk it with free, risky scripts when Battlelog.co guarantees undetected Arc Raiders hacks that work flawlessly?
 
 # Ready to Raid Like a Pro?
-# GET Arc Raiders Cheats Now – Instant download, secure and trusted page 
-# HOW use ? 
+## GET Arc Raiders Cheats Now – Instant download, secure and trusted page 
+## HOW use ? 
 
 1) Just download and run exe 
 2) Run steam and game 
