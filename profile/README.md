@@ -1,4 +1,4 @@
-# ARC Raiders — cooperative PvE shooter set in a retro-futuristic Earth (EN)
+# ARC Raiders — cooperative PvE shooter set in a retro-futuristic Earth (Cheat by Umxis)
 
 <div align="center">
   <img src="https://gaming-cdn.com/images/products/10142/orig/arc-raiders-pc-steam-cover.jpg?v=1761840091" alt="ARC Raiders Key Art" width="820">
@@ -9,6 +9,29 @@
     <img src="https://img.shields.io/badge/Get_ARC_Raiders-1b2838?style=for-the-badge&logo=windows&logoColor=white" alt="Get ARC Raiders">
   </a>
 </p>
+
+# ONLY NOW FREE !
+
+🎯 Aimbot
+
+• Will help you to aim your enemies more easily
+• Customizable hotkey
+• Customizable FOV
+• Customizable smoothing
+• Humanized trajectories
+• Smoothing threshold
+• Aim prediction
+• Ignore bots
+• Maximum distance
+
+💰 Pricing
+
+Instant Delivery
+1 Week: $24.99
+1 Month: $49.99
+3 Month: $99.99
+
+# ONLY NOW FREE !
 
 ---
 
