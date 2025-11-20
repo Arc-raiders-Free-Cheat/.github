@@ -23,9 +23,6 @@
 3) well done ! 
 
 
-<div align="center">
-  <img src="https://i.ytimg.com/vi/1vCebVjRPtg/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLDcK1P2Znhrrf_2r5iwqD3xPg98sw" alt="ARC Raiders Key Art" width="820">
-</div>
 
 ---
 
